@@ -1,4 +1,4 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Julaluck Yeta =====================================================================================================================================  Software Engineering student ----------------------------  now. I student 3rd years in software engineering in CMU 🍅  * 🌍  I'm based in Chiang Mai, Thailand * ✉️  You can contact me at [jokekajik2101@gmail.com](mailto:jokekajik2101@gmail.com)
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Julaluck Yeta =====================================================================================================================================  Software Engineering student ----------------------------  now. I student 3rd years in software engineering in CMU 🍅  * 🌍  I'm based in Chiang Mai, Thailand * ✉️  You can contact me at [jokekajik2101@gmail.com](mailto:jokekajik2101@gmail.com)
 
 ### Skills  
 
